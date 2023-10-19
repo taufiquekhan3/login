@@ -1,1 +1,1 @@
-taufiquekhan3.github.io/login/#
+https://taufiquekhan3.github.io/login/
